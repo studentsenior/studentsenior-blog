@@ -12,4 +12,4 @@ We are proud of our growing community and organic reach:
 
 ## Credits
 
-Made By Sahil and Rafey with 🧡
+Made By Sahil and Rafey with 🧡.
